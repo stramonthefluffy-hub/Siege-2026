@@ -2260,3 +2260,21 @@ https://www.instagram.com/p/DV2KpmAianA/?igsh=MXRlMnVsMXJwcTR3aQ==
 https://www.instagram.com/reel/DVxE1UAEXAy/?igsh=bmk5am1ncThhd3M1
 
 you have to understand that you pay for it! they use your money for this. you have to stop agreeing stop consenting. 
+
+----------------
+
+really stubborn and wont let go. and REALLY killy. Father REBUKE YOU and your SMUT! pray against them! War againt their parasite and their magic! Father! War against their parasite! war against their Astral Travel BS and their magic! and their evil eye! 
+
+https://m.youtube.com/watch?v=xPhUskVqL0M
+
+----------------
+
+
+
+
+
+
+
+
+
+
