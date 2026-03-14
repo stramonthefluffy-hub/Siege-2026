@@ -2255,4 +2255,8 @@ https://www.instagram.com/reel/DURiZfikqrC/?igsh=dms4ZHh6eXBkZm5i
 
 https://www.instagram.com/p/DV2KpmAianA/?igsh=MXRlMnVsMXJwcTR3aQ==
 
+-------------
 
+https://www.instagram.com/reel/DVxE1UAEXAy/?igsh=bmk5am1ncThhd3M1
+
+you have to understand that you pay for it! they use your money for this. you have to stop agreeing stop consenting. 
