@@ -2290,6 +2290,27 @@ a mesaage from Father, to those with esrs to hear!
 https://www.instagram.com/p/DV1hg0mAnwC/?igsh=MXU0eTdkcG1vd2NiOA==
 
 
+--------------
+
+spiritually, were aat the "shadows" war. 
+
+they are coming in force. a push, ofr a big war. 
+
+https://m.youtube.com/watch?v=ONourFUaoLk
+
+prepare and pray! this is the result of all this experimentation! it makes the whole place reek of death spiritually, just like how dark magic attracts mold, which itself is a "recycler" organism, this, is attracting ancient serpentsmtgat are come to feed on everything! 
+
+yet, it is God way to use evil to cleanse wickedness! and who here will blame Heaven ? a culture that has paid and consented into raping children, AND EATING THEM.
+
+and these little dramas, will pale to compare! 
+
+a learning moment!
+
+pray! 
+
+https://m.youtube.com/watch?v=uNqBv-_q6I0&pp=QAFIAQ%3D%3D
+
+--------------
 
 
 
