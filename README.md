@@ -2238,3 +2238,21 @@ You can also ask God to war against witchcraft, and "the parasite".
 Your intention is valuable, it's why they need you to consent, remember this. You're not helpless. 
 
 Being nice to life, and lighting a candle to yourself + loved ones for health and faith, angelic protection, isn't witchcraft. Cursing and wishing others death, and to destiny swap, is.
+
+
+----------------
+
+
+the most ugly part about all this, is how they sexually molest us everynight.
+
+its truly deplorable. they do other stuff, too. the machine-like matrix control grid etc would have been bad enough, but this is notging other than rape again. a cycle that keeps repeating , tho, since the beginning.
+
+more murder energies too - weve seen plants already and spy signs. dumping more money into it. peope fail to understand this is Fathers work. people should be learning that Gid is real 🤔 even if we die, well, that dowsnt work like that 🤔 Jesus defeated death. 
+
+ICXCNIKA.
+
+https://www.instagram.com/reel/DURiZfikqrC/?igsh=dms4ZHh6eXBkZm5i
+
+https://www.instagram.com/p/DV2KpmAianA/?igsh=MXRlMnVsMXJwcTR3aQ==
+
+
