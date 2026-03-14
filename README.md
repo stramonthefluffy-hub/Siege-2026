@@ -2267,7 +2267,34 @@ really stubborn and wont let go. and REALLY killy. Father REBUKE YOU and your SM
 
 https://m.youtube.com/watch?v=xPhUskVqL0M
 
-----------------
+---------------
+
+it goes without saying, that its a good time to heal relarionships qith loved ones 
+
+https://m.youtube.com/watch?v=WHLZWEiEvug
+
+
+we tried to heal thisnmany times, it dwfaults into polyadultery and nighttime invasions. plus, _this_ as icing on tge cake.
+
+whats the lesson here ? dont sin 🤔 never fornicate. see we fell into the trap of tge passions due to deception, but it still fvae them a foothold in tge spirit 🤔 and now theyre holding on as if its dear life, ironcially skipping over the offered path of repentence. but what domyou expect whennyou latch on to someone like this ?
+
+healing actually requires you go and have a life somewhere else. not peep at the person 24/7 to reinforce the addiciton, like some sort nosey neighboir that never sleeps. 
+
+and you guys want to tell us this is archon nobility ? 🤔 this we said no to join ? yeah theres that too, no? our explicit refusals, that were ignored.
+
+
+covenant breakers added to oath breakers. you are rebuked and accused for what youre doing !
+
+a mesaage from Father, to those with esrs to hear! 
+
+https://www.instagram.com/p/DV1hg0mAnwC/?igsh=MXU0eTdkcG1vd2NiOA==
+
+
+
+
+
+
+
 
 
 
