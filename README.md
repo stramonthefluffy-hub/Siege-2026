@@ -2247,7 +2247,7 @@ the most ugly part about all this, is how they sexually molest us everynight.
 
 its truly deplorable. they do other stuff, too. the machine-like matrix control grid etc would have been bad enough, but this is notging other than rape again. a cycle that keeps repeating , tho, since the beginning.
 
-more murder energies too - weve seen plants already and spy signs. dumping more money into it. peope fail to understand this is Fathers work. people should be learning that Gid is real 🤔 even if we die, well, that dowsnt work like that 🤔 Jesus defeated death. 
+more murder energies too - weve seen plants already and spy signs. dumping more money into it. peope fail to understand this is Father's work. people should be learning that God is real 🤔 even if we die, well, that dowsnt work like that 🤔 Jesus defeated death. 
 
 ICXCNIKA.
 
