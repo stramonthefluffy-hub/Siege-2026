@@ -2376,8 +2376,13 @@ put all the files in a drive directory 🤔 hope i didnt miss anything
 https://drive.google.com/drive/folders/0B-hz6KGui1kIbFVyY2Z6Mk5hVGs?resourcekey=0-Fr7amR8yk16uGCYsKSgz8w
 
 
+somehow stuff copied 3 timez - gonna let it be 🤔
 
+share docs far and wide! when it comes to parasite / alien / archon waefare, you just have to ask God to war against it. and take baxk your life: stop agreeing, reject it, and accuse it in heavens court. do magic/curses return to senders and deliverences. they are literally using spirituality against us. even if it has an earthly business LTD and does AI, its still demons.
 
+treat it as such. stay grounded. its just tge synagogue of satan's true face.
+
+baal worshippers, all the same.
 
 
 
