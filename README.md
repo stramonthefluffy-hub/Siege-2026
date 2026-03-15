@@ -2313,6 +2313,54 @@ https://m.youtube.com/watch?v=uNqBv-_q6I0&pp=QAFIAQ%3D%3D
 --------------
 
 
+16/March/26
+============
+
+
+A vision, 
+
+we have seen many human sized vessles trying to leave th earth, and being shot down by the sun. this parasite doesnt have long! ans they know it. 
+
+society feels synthetic because of whos buolding it. they are a machine. unfeeling, and cold! and they need you to consent! 
+
+pray for empathy to reign again. Pray for Gods kingdom! pray God pour more of his spirit and to expose these ploys and schemes!
+
+THEY NEED YOU TO CONSENT. DO NOT GIVE IT!
+
+reject theor offers. reject their medicines that heal nothing. REJECT their gaslight of a life spent dying! in sprints! in meetings! in circlejerk get togethers.co gratulating each otger for jobs neverdone!
+
+God will move to remove all those implicated! speak to others! warn them! none of this will remain.
+
+GLORIFY GOD! Father is with us in this fire and we are not abandoned! 
+
+https://www.instagram.com/p/DViK_qOCLoy/?igsh=MzJqYnM4b2p3d2p3
+
+https://www.instagram.com/p/DVtoF1ugmbs/?igsh=MXhqaGUwcmMwbmV0bg==
+
+https://m.youtube.com/watch?v=06YqTou5GV8
+
+-------------
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
