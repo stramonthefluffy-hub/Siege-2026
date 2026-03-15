@@ -2386,9 +2386,15 @@ baal worshippers, all the same.
 
 i am being guided to make the note of "dont rush into deus vult violence" - remember, its a spiritual battle. rebuke and open eyes. some will turn to our side.
 
+-------------
 
+some fancy repeated cutscene material from our sign-stream ^^ enjoy
 
+GLORIFY! WE WILL OVERCOME! 
 
+https://www.instagram.com/reel/DVtHlW4CHUk/?igsh=dXprdmRtbmlkZ2Mw
+
+KEEP PRAYING! KEEP OPENNING EYES! SHIELDS UP! 
 
 
 
