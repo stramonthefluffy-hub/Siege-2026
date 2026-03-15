@@ -2341,9 +2341,16 @@ https://m.youtube.com/watch?v=06YqTou5GV8
 
 -------------
 
+https://www.instagram.com/p/DVTEUxok4ZG/?igsh=dTBndzhvN3BnYjA5
 
 
+theyre trying to "delete" us, so theyev locked us out of facebook, removed links to heavy metal chelation, removed links to pocket gypsie, and disabled the option to do a facebook auth-app login. instagram meta app is completely jacked for seekeronthemountain. prbably james toying with servers lile he did wiyh shadow banning HMC back then.
 
+they wanna finish off the cloning attempt with a deletion 🤔 they seem.to have a backup assasin on the archon team. on the ground teams really wanna poison our spices and meds 🤔 
+
+ah well - Father is about to do some volatile moves. 
+
+pray and brace for impact. 🧌
 
 
 
