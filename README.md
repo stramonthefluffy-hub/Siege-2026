@@ -2371,9 +2371,9 @@ healing notes
 https://docs.google.com/document/d/1gH_xVkPKWzHwhQncDWKfQh_fZt_LBivzRMllzmVWObo/edit?usp=drivesdk
 
 
+put all the files in a drive directory 🤔 hope i didnt miss anything 
 
-
-
+https://drive.google.com/drive/folders/0B-hz6KGui1kIbFVyY2Z6Mk5hVGs?resourcekey=0-Fr7amR8yk16uGCYsKSgz8w
 
 
 
