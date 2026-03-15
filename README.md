@@ -2366,6 +2366,9 @@ now naturally more creepy cause its these guys 🤔
 https://docs.google.com/document/d/1HF9nP1AlcrcPn7te3vJ5wKyGqDgEQoTlw_0uJ-9XEKo/edit?usp=drivesdk
 
 
+healing notes
+
+https://docs.google.com/document/d/1gH_xVkPKWzHwhQncDWKfQh_fZt_LBivzRMllzmVWObo/edit?usp=drivesdk
 
 
 
