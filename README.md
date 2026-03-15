@@ -2384,6 +2384,7 @@ treat it as such. stay grounded. its just tge synagogue of satan's true face.
 
 baal worshippers, all the same.
 
+i am being guided to make the note of "dont rush into deus vult violence" - remember, its a spiritual battle. rebuke and open eyes. some will turn to our side.
 
 
 
