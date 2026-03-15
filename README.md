@@ -2360,6 +2360,10 @@ heres pocket gypsie
 https://docs.google.com/document/d/17jIjLCdUkz01G155IqK4iCXnM1x7_HX0bezd_4l6McU/edit?usp=drivesdk
 
 
+spiriual warfare on fb report
+now naturally more creepy cause its these guys 🤔 
+
+https://docs.google.com/document/d/1HF9nP1AlcrcPn7te3vJ5wKyGqDgEQoTlw_0uJ-9XEKo/edit?usp=drivesdk
 
 
 
