@@ -2353,6 +2353,12 @@ ah well - Father is about to do some volatile moves.
 pray and brace for impact. 🧌
 
 
+-------------------
+
+heres pocket gypsie 
+
+https://docs.google.com/document/d/17jIjLCdUkz01G155IqK4iCXnM1x7_HX0bezd_4l6McU/edit?usp=drivesdk
+
 
 
 
