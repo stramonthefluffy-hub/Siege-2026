@@ -2508,6 +2508,45 @@ so you have to ve specific as to what you pray against. parasites ? pray fod war
 
 your soul too and your closeness to him against the distance from him. because thats the most important element.
 
+--------------
+
+
+https://m.youtube.com/watch?v=ZsBhvSMQUk4
+
+messages thru time!
+
+dont worry, father is hovering over the earth... warching us all take our stand! whether we halt the apocalypse, survive it, or go out in a blaze of glory! your faith in christ and father is what matters most.
+
+he made all this. trust he can make it all again! 
+
+BELIEVE!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
