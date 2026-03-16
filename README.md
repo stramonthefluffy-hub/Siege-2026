@@ -2452,6 +2452,32 @@ these cockroaches dont care because they think they can escape. irs easy to run 
 
 PRAY! 
 
+-------------
+
+why is it this way?
+
+hmm, pride. pride is the sin of the angels, "big brother knows best" type with the ones put incharge to oversee.
+
+the series offers a more dofestable view. humans split into two, earth government assimialtes shadow tech, vorlons get mostly massacred with the remaining becoming hardcore "benevolent" manipulators (like some of the pantheon heads) -- but essentially playing into the ensuing chaos.
+
+its upto tge human rebels on babykon 5 (with help of allies, who themselves got a share of the corruption and are also split) to go get "the first one" to sort things out. but getting the first one isnt easy. it requires sacrifice.
+
+same as with confusion of who "the one" is. etc.
+
+good representation of what this is. give it a skim.
+
+we all will overcome. of this we are sure. its a war, like any other war. tge enemy bleeds. not just you and me.
+
+straighten that back. ground. the sun rose again today. we still have, more than a good, chance.
+
+NEVER RELENT! BE NOT AFRAID!
+
+
+
+
+
+
+
 
 
 
