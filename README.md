@@ -2515,13 +2515,18 @@ https://m.youtube.com/watch?v=ZsBhvSMQUk4
 
 messages thru time!
 
-dont worry, father is hovering over the earth... warching us all take our stand! whether we halt the apocalypse, survive it, or go out in a blaze of glory! your faith in christ and father is what matters most.
+dont worry, father is hovering over the earth... watching us all take our stand! whether we halt the apocalypse, survive it, or go out in a blaze of glory! your faith in christ and father is what matters most.
 
 he made all this. trust he can make it all again! 
 
 BELIEVE!
 
 
+-------------
+
+another, from us to you :)
+
+https://m.youtube.com/watch?v=vIFRnumVknU&list=RDZsBhvSMQUk4&index=2&pp=0gcJCaUCnhUGBSbi
 
 
 
