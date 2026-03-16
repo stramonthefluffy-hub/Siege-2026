@@ -2499,6 +2499,30 @@ develop your minds. stop letting this stay in the realm of fanatsy. it isnt.
 
 mentalism & faith. your brain is a forge of creation. go thru the defense against the black arts pdf. its short but sweet :) its in the directory link above
 
+-------------
+
+
+so you have to ve specific as to what you pray against. parasites ? pray fod wars against _malevolent_ parasites 🤔 tgat somehow makes a difference. also, "those viewing thru" the parasite, and that seems to be a larger group still of "masters" ... 
+
+"God Father, war against ______" is good enough, and fo thru the list. war, madness, all types of injustice for tgge church, etc.
+
+your soul too and your closeness to him against the distance from him. because thats the most important element.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
