@@ -2488,9 +2488,16 @@ still, the holy spirit cannot be overriden by a parasite.
 
 learn this show, but stay grounded and keep praying.
 
+--------------
 
 
+https://m.youtube.com/watch?v=eoMvQni4ET8
 
+and yes, "the shadows" fear human psychics.
+
+develop your minds. stop letting this stay in the realm of fanatsy. it isnt.
+
+mentalism & faith. your brain is a forge of creation. go thru the defense against the black arts pdf. its short but sweet :) its in the directory link above
 
 
 
