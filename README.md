@@ -2432,10 +2432,25 @@ find the cities. now you also see what kind of "people" these things are. let th
 
 and give thanks :} pray to father about everything. YOU ARE NOT POWERLESS. PRAYER WORKS. PROGRAM THIS REALITY WITH YOUR MIND! 
 
+---------------
+
+spiritual happenings sequence
 
 
+https://m.youtube.com/watch?v=gFm73Ro9MBs&list=RDgFm73Ro9MBs&start_radio=1&pp=oAcB
+
+understand tge vorlon - shadows relationship.
+
+this is part of the problem. vorlons atand for wartchers, shadows for fallen.
+
+things are moving in the spirit. we have our own job. earthfleet is the white stars. were kinda stuck in between.
 
 
+pray to Father he stops this before its too late. bg things are moving on tge earth because of this drama =\ ALL THIS BAAL WORSHIP.
+
+these cockroaches dont care because they think they can escape. irs easy to run and hide when its not your home.
+
+PRAY! 
 
 
 
