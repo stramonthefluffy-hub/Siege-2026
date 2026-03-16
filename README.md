@@ -2396,7 +2396,17 @@ https://www.instagram.com/reel/DVtHlW4CHUk/?igsh=dXprdmRtbmlkZ2Mw
 
 KEEP PRAYING! KEEP OPENNING EYES! SHIELDS UP! 
 
+16/March/26
+=============
 
+
+https://www.instagram.com/reel/DUkfcs8jkBw/?igsh=d2t6Zzlva3FlYjM3
+
+reject this and dont consent.
+
+how to not consent ? rebuke it. tell God you dont consent ,and ask Him to judge it. reject tgeu prayer. tell God whats wrong. 
+
+literally, do it. it works. they need you to accept.
 
 
 
