@@ -2406,6 +2406,33 @@ reject this and dont consent.
 
 how to not consent ? rebuke it. tell God you dont consent ,and ask Him to judge it. reject tgeu prayer. tell God whats wrong. 
 
+------------
+
+these fuys are on the same team as this guy? 
+
+https://www.instagram.com/reel/DUwFicEElEA/?igsh=ejJjNmtldWpmNDgz
+
+hunting humans seems popular 🌚
+
+Father, i rebuke these people, and i accuse them in your court, abd BIND THEM IN THE EARTH AND IN HEAVEN! 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 literally, do it. it works. they need you to accept.
 
 
