@@ -2458,9 +2458,9 @@ why is it this way?
 
 hmm, pride. pride is the sin of the angels, "big brother knows best" type with the ones put incharge to oversee.
 
-the series offers a more dofestable view. humans split into two, earth government assimialtes shadow tech, vorlons get mostly massacred with the remaining becoming hardcore "benevolent" manipulators (like some of the pantheon heads) -- but essentially playing into the ensuing chaos.
+the series offers a more digestable view. humans split into two, earth government assimialtes shadow tech, vorlons get mostly massacred with the remaining becoming hardcore "benevolent" manipulators (like some of the pantheon heads) -- but essentially playing into the ensuing chaos.
 
-its upto tge human rebels on babykon 5 (with help of allies, who themselves got a share of the corruption and are also split) to go get "the first one" to sort things out. but getting the first one isnt easy. it requires sacrifice.
+its upto the human rebels on babylon 5 (with help of allies, who themselves got a share of the corruption and are also split) to go get "the first one" to sort things out. but getting the first one isnt easy. it requires sacrifice.
 
 same as with confusion of who "the one" is. etc.
 
@@ -2472,8 +2472,21 @@ straighten that back. ground. the sun rose again today. we still have, more than
 
 NEVER RELENT! BE NOT AFRAID!
 
+--------------
 
+https://m.youtube.com/watch?v=hMjNu_MFGa8
 
+the still remaining watchers are allies, but are tricky ... like the higher 'deities' they arent emotional, theyre duty bound. as all creation mostly is.
+
+we feel it in our bones, ourselves, there is intense ... we wouldnt say hatred, but rejection, of rebelion. beyond the rational. humanity needs to rise up to the occasion, and play their part.
+
+https://m.youtube.com/watch?v=hMjNu_MFGa8
+
+ironcially, shadow texh involves a parasite, that controls people in power..exhihx theyve now moved to install into everyone else with these injections. 
+
+still, the holy spirit cannot be overriden by a parasite.
+
+learn this show, but stay grounded and keep praying.
 
 
 
