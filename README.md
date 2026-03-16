@@ -2408,7 +2408,7 @@ how to not consent ? rebuke it. tell God you dont consent ,and ask Him to judge 
 
 ------------
 
-these fuys are on the same team as this guy? 
+these guys attacking us are on the same team as this guy? 
 
 https://www.instagram.com/reel/DUwFicEElEA/?igsh=ejJjNmtldWpmNDgz
 
