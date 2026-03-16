@@ -2404,7 +2404,7 @@ https://www.instagram.com/reel/DUkfcs8jkBw/?igsh=d2t6Zzlva3FlYjM3
 
 reject this and dont consent.
 
-how to not consent ? rebuke it. tell God you dont consent ,and ask Him to judge it. reject tgeu prayer. tell God whats wrong. 
+how to not consent ? rebuke it. tell God you dont consent ,and ask Him to judge it. reject thru prayer. tell God whats wrong. 
 
 ------------
 
@@ -2416,24 +2416,29 @@ hunting humans seems popular 🌚
 
 Father, i rebuke these people, and i accuse them in your court, abd BIND THEM IN THE EARTH AND IN HEAVEN! 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 literally, do it. it works. they need you to accept.
+
+--------------
+
+https://m.youtube.com/watch?v=zIc7zDUQhBw
+
+https://m.youtube.com/watch?v=hPWN6Xq0Bmc
+
+the cockroaches are fleeing in the spirit. remeber when hearing news about deatha tho, they have underground cities they go hide in. this is far from over and theyre not gone. 
+
+https://m.youtube.com/watch?v=w_6IBnrAeyA&pp=0gcJCcUKAYcqIYzv
+
+find the cities. now you also see what kind of "people" these things are. let the good ones of them decide soon, before they trigger the surface nuclear war and cause everytging to overheat with their tech.
+
+and give thanks :} pray to father about everything. YOU ARE NOT POWERLESS. PRAYER WORKS. PROGRAM THIS REALITY WITH YOUR MIND! 
+
+
+
+
+
+
+
+
 
 
 
