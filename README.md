@@ -2528,14 +2528,31 @@ another, from us to you :)
 
 https://m.youtube.com/watch?v=vIFRnumVknU&list=RDZsBhvSMQUk4&index=2&pp=0gcJCaUCnhUGBSbi
 
+-------------
+
+https://m.youtube.com/shorts/FkNL4FXOaDo
 
 
+🤔 we did die, or "one of us" died. it happened in ireland. "dr sleep" branch termination. galactic variant. w
+
+that said, theres a message here that extends beyond that segment, in that a first death, at least psychologically, and a descent into hell, so to speak, to find christ, even in hell, then to receive him, and be reborn holy.
+
+it is a meditation task few finish - many try to force it, but its easier to receive it. linking into God, and "dissipation" into God are two different paths. second death naturally also tgere for the "eggs that fail to hatch" spiritually. 
+
+if you watch babylon5, youll see how the vorlons and shadows themselves are children, in comparison to the first ones.
+
+theres also an interesting tidbit, about the shadows using human psychics to for travel, alot like in dune how they do "space folding" etc, but psyics are themselves used by humanity as a weapon. 
+
+theres a scene in there about this "living spaceships" / "weapons with their own power source" etc -- psychics arent very explored in the show itself. 
+
+but again this is the potential of the species. we certainly dont need parasites to do this. but a latge portion of the population is already compromised injected d or not, its in the food chain.
+
+but its not a simple "modification" as this tech serves as a kill switch, too. and makes people barren. its evil. we are unsure how else it could be presented. if "the top" ever steps up to show us and tell, wed know more, but thats unlikely.
 
 
+for now, pray.
 
-
-
-
+yes one of those "out there" posts again but we were told to share 
 
 
 
